@@ -1,4 +1,4 @@
-# 
+# Enhance DisplayFusion for PC | DisplayFusion for Windows with elite DisplayFusion for PC | DisplayFusion for Windows Addon | hide-desktop-icons + window-positioning, the #1 addon.
 
 
 
